@@ -4,6 +4,5 @@ Private Informations:
 - V-Tuberin
 - Java Development
 - Catgirl/Femboy
-- Owner bei MythicMC
 - Trans
 - Bi
